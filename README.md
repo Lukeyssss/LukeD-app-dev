@@ -19,6 +19,7 @@ This South Korean apocalyptic horror series on Netflix follows a withdrawn teena
 
 ##### Links:
 [Sweet Home](https://en.wikipedia.org/wiki/Sweet_Home_(TV_series))
+
 ![Sweet Home](https://upload.wikimedia.org/wikipedia/en/5/56/Sweet_Home_2.jpg)
 
 ---
