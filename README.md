@@ -12,11 +12,13 @@ This South Korean apocalyptic horror series on Netflix follows a withdrawn teena
 
 #### Favorite Lines:
 > "Monsters aren't the only ones who are scary these days."
+
 > "We all turn into monsters eventually. The question is, what kind of monster will you be?"
+
 > "This isn't a world where everyone can survive."
 
 ##### Links:
 [Sweet Home](https://en.wikipedia.org/wiki/Sweet_Home_(TV_series))
-![Sweet Home](https://en.wikipedia.org/wiki/Sweet_Home_(TV_series)#/media/File:Sweet_Home_2.jpg)
+![Sweet Home](https://upload.wikimedia.org/wikipedia/en/5/56/Sweet_Home_2.jpg)
 
 ---
